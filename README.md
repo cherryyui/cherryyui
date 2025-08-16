@@ -1,3 +1,4 @@
+![kirby-dance](https://github.com/user-attachments/assets/bedf7c81-6aa6-4489-9aef-b2e617b0c897)
 ## 🎉🩷Hey! Sign my ata! Im pretty friendly, dont be scared to approach!!
 ![c240887a140f5d47a7994ead58c52b0f](https://github.com/user-attachments/assets/b2e4b949-6a82-4fec-b808-c1720644c7c4)
 
