@@ -1,5 +1,6 @@
 ## 🎉🩷Hey! Sign my ata! Im pretty friendly, dont be scared to approach!!
-https://i.pinimg.com/originals/c2/40/88/c240887a140f5d47a7994ead58c52b0f.gif
+![c240887a140f5d47a7994ead58c52b0f](https://github.com/user-attachments/assets/b2e4b949-6a82-4fec-b808-c1720644c7c4)
+
 <!--
 **kirby1lover/kirby1lover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
