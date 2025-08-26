@@ -23,7 +23,7 @@
 
 ˏˋ°•* Proshippers/darkshippers
 
-ˏˋ°•* -14 - 18+ 
+ˏˋ°•* -14 and 18+ 
 
 ˏˋ°•* Hazbin Hotel fans + Dandys world fans
 
