@@ -25,7 +25,7 @@
 
 ˏˋ°•* -14 and 18+ 
 
-ˏˋ°•* Hazbin Hotel fans + Dandys world fans
+ˏˋ°•* Hazbin Hotel + Helluva boss fans + Dandys world fans
 
 ˏˋ°•* If youre just a problematic person in general. Or just weird. 
 
