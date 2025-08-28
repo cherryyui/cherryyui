@@ -21,6 +21,8 @@
 
 : ̗̀➛ Dni - I am not afraid to block/hide.
 
+ˏˋ°•* Basic DNI Critera
+
 ˏˋ°•* Proshippers/darkshippers
 
 ˏˋ°•* -14 and 18+ 
@@ -34,3 +36,7 @@
 ˏˋ°•* Trollers
 
 ˏˋ°•* Being inappropriate on the safe server (???) 
+
+(More DNI listed in strawpage when its finished!) 
+
+
