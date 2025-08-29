@@ -29,6 +29,8 @@
 
 ˏˋ°•* Hazbin Hotel + Helluva boss fans + Dandys world fans
 
+ˏˋ°•* dandys world fans have an exeption if you are already my friend ^^
+
 ˏˋ°•* If youre just a problematic person in general. Or just weird. 
 
 ˏˋ°•* Rage baiters???
