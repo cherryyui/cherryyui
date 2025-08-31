@@ -5,9 +5,6 @@
 ![download](https://github.com/user-attachments/assets/c03a2b2d-968a-4925-8038-bf1e6a7b93ef)
 
 
- 
-![pomni-running-with-gun-pomni-and-jax](https://github.com/user-attachments/assets/34ad31f9-f7c9-4fe8-80bc-5a0e184f3f74)
-
 
 FunnyBunny✅ Other ships I do not mind. (I dont hate on what other people think, its their own decision!) 
 
