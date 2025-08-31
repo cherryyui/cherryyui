@@ -25,7 +25,7 @@ FunnyBunny✅ Other ships I do not mind. (I dont hate on what other people think
 
  
                   
-![jax-smug-3-face](https://github.com/user-attachments/assets/07dbbf29-ac37-4e47-98dd-e7dec3b256b8)
+![pomni-running-with-gun-pomni-and-jax](https://github.com/user-attachments/assets/710f929f-5acb-4a72-b112-393afdb852a4)
                    
 
 
