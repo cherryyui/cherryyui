@@ -2,6 +2,7 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 <img width="361" height="295" alt="Screenshot 2025-08-30 10 51 17 PM" src="https://github.com/user-attachments/assets/fe3bfffa-800e-470e-bcf8-fdbfccca902d" />
+<img width="167" height="125" alt="Screenshot 2025-08-30 10 52 24 PM" src="https://github.com/user-attachments/assets/912041e4-fd08-4b2f-841b-264c484ae526" />
 
  
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkirby1lover&label=Supa%20cool%20people%20%3A&labelColor=%23f47373&countColor=%23ba68c8)
