@@ -24,8 +24,7 @@ FunnyBunny✅ Other ships I do not mind. (I dont hate on what other people think
 
  
                   
-![bmcHR6](https://github.com/user-attachments/assets/4a4b9863-7cae-4124-8690-aa6f235010f8)
-
+![jax-smug-3-face](https://github.com/user-attachments/assets/07dbbf29-ac37-4e47-98dd-e7dec3b256b8)
                    
 
 
