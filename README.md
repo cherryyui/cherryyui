@@ -6,7 +6,8 @@
 
 
  
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkirby1lover&label=Supa%20cool%20people%20%3A&labelColor=%23f47373&countColor=%23ba68c8)
+![pomni-running-with-gun-pomni-and-jax](https://github.com/user-attachments/assets/34ad31f9-f7c9-4fe8-80bc-5a0e184f3f74)
+
 
 FunnyBunny✅ Other ships I do not mind. (I dont hate on what other people think, its their own decision!) 
 
