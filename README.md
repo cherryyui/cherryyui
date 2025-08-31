@@ -1,4 +1,5 @@
    🎉🤡Hey! Sign my ata! Im pretty friendly, dont be scared to approach!!
+   
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 <img width="361" height="295" alt="Screenshot 2025-08-30 10 51 17 PM" src="https://github.com/user-attachments/assets/fe3bfffa-800e-470e-bcf8-fdbfccca902d" />
 
