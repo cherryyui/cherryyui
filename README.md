@@ -17,7 +17,8 @@
  
                   
                    
-![kirby-dance](https://github.com/user-attachments/assets/ff5962d4-7956-47f6-b247-9e0f691e336b)
+<img width="361" height="295" alt="Screenshot 2025-08-30 10 51 17 PM" src="https://github.com/user-attachments/assets/6cfd784e-84a5-4c13-839c-cfb87b2f8766" />
+
 
 
 : ̗̀➛ Dni - I am not afraid to block/hide.
