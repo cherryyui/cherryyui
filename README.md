@@ -12,7 +12,8 @@ FunnyBunny✅ Other ships I do not mind. (I dont hate on what other people think
 
  ♡⁔⁔ Always the #1 Kirby fan ⁔⁔♡
                                                                                  
-   ★  I usually dont always accept friend requests - Please dont take it personal if I dont friend you back! ★    
+   ★  I usually dont always accept friend requests - Please dont take it personal if I dont friend you back! ★ 
+   If you ARE friended and I unadd you, I most likely either forgot who you are or we arent close and dont talk!
                  
    ︶ I change my profile a lot so dont mind that.. also, my most commonly used online names are yui and cherry! 
    
