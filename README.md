@@ -31,9 +31,7 @@
 
 ˏˋ°•* -14 and 18+ 
 
-ˏˋ°•* Hazbin Hotel + Helluva boss fans + Dandys world fans
-
-ˏˋ°•* dandys world fans have an exeption if you are already my friend ^^
+ˏˋ°•* Hazbin Hotel + Helluva boss fans + THOSE Dandys world fans (not all dandys world fans, just yk.. those ones.)
 
 ˏˋ°•* If youre just a problematic person in general. Or just weird. 
 
