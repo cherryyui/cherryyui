@@ -3,7 +3,7 @@
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 ![1000008113](https://github.com/user-attachments/assets/086a94d1-f87e-47a2-8dc3-4dd0c95e7b86)
 
-![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=supacoolpeople&color=blue)
+![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=supacoolpeople)
 
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
