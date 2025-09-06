@@ -6,7 +6,7 @@
 
 
 
-I am very open about ships, if im sitting in a fandom and you want to know.. just ask!
+I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
 
 ![1000008112](https://github.com/user-attachments/assets/55843a3f-9a78-4384-a87f-fb4fd6b8d9a9)
