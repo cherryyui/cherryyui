@@ -4,7 +4,7 @@
 ![1000008113](https://github.com/user-attachments/assets/086a94d1-f87e-47a2-8dc3-4dd0c95e7b86)
 
 
-! [Profile view counter on GitHub] (https://github.com/killuagonlover/killua:
+! [Profile view counter on GitHub] (https://github.com/killuagonlover/killua:)
 
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
