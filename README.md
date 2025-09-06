@@ -4,7 +4,7 @@
 ![1000008113](https://github.com/user-attachments/assets/086a94d1-f87e-47a2-8dc3-4dd0c95e7b86)
 
 
-https://camo.githubusercontent.com/a05c942dae48b64bf56743f2d9ba52f3b15d4209360d526e44a27a972e1ae940/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d7061496164696e737472616974266c6162656c3d70726f66696c652b76697369747326636f6c6f723d666630303030
+
 
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
