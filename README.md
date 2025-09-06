@@ -6,7 +6,11 @@
 
 
 
-FunnyBunny✅ Other ships I do not mind. (I dont hate on what other people think, its their own decision!) 
+I am very open about ships, if im sitting in a fandom and you want to know.. just ask!
+
+
+![1000008112](https://github.com/user-attachments/assets/55843a3f-9a78-4384-a87f-fb4fd6b8d9a9)
+
 
  ♡⁔⁔ Always the #1 Kirby fan ⁔⁔♡
                                                                                  
