@@ -5,8 +5,6 @@
 
 ![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
 
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkilluagonlover&label=Fans%20%3A%20&labelColor=%23ba68c8&countColor=%23f47373&style=flat)
-
 ↑↑↑↑↑  Want your own? Visit the last link in my links :D
 
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
