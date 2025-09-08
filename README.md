@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)  
 
-.... ↑↑↑  Want your own? Visit the last link in my links :D
+↑↑↑↑↑  Want your own? Visit the last link in my links :D
 
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
