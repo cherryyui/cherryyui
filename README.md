@@ -3,7 +3,9 @@
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 ![1000008113](https://github.com/user-attachments/assets/086a94d1-f87e-47a2-8dc3-4dd0c95e7b86)
 
-![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)  
+![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
+
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fkilluagonlover&label=Fans%20%3A%20&labelColor=%23ba68c8&countColor=%23f47373&style=flat)
 
 ↑↑↑↑↑  Want your own? Visit the last link in my links :D
 
