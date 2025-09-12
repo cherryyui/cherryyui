@@ -52,6 +52,6 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 
 ˏˋ°•* Being inappropriate on the safe server (???) 
 
-(More DNI listed in strawpage when its finished!) 
+(More DNI listed in strawpage!) 
 
 
