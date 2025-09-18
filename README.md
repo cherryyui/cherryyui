@@ -38,7 +38,7 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 
 ˏˋ°•* Basic DNI Critera
 
-ˏˋ°•* Proshippers/darkshippers
+ˏˋ°•* comshippers/darkshippers
 
 ˏˋ°•* -14 and 18+ 
 
