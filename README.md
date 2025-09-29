@@ -2,6 +2,8 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
+https://64.media.tumblr.com/71f77be407f333d9c0e85c6cfed49d30/c52e3c015dee2370-8d/s640x960/8c7e50e312dae9fdf2bc15740766f8a6e652ecc9.gif
+
 ![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
 
 ↑↑↑↑↑  Want your own? Visit the last link in my links :D
