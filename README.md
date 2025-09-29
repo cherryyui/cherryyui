@@ -13,7 +13,7 @@
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
 
-<img src="https://media.tenor.com/3dTj9cRPU50AAAAj/ralsei-kris.gif" alt="Ralsei Kris Sticker - Ralsei Kris Deltarune - Discover &amp; Share GIFs"/><img width="200" height="159" alt="image" src="https://github.com/user-attachments/assets/44f3d63e-e226-4bdd-b2fa-bbbbc4382598" />
+<img src="https://media.tenor.com/3dTj9cRPU50AAAAj/ralsei-kris.gif" alt="Ralsei Kris Sticker - Ralsei Kris Deltarune - Discover &amp; Share GIFs"/>
 
 
 
