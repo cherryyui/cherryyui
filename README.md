@@ -2,7 +2,8 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-https://64.media.tumblr.com/71f77be407f333d9c0e85c6cfed49d30/c52e3c015dee2370-8d/s640x960/8c7e50e312dae9fdf2bc15740766f8a6e652ecc9.gif
+<img src="https://64.media.tumblr.com/71f77be407f333d9c0e85c6cfed49d30/c52e3c015dee2370-8d/s640x960/8c7e50e312dae9fdf2bc15740766f8a6e652ecc9.gif" alt="Image tagged with deltarune, kris deltarune, susie deltarune – @smaland47  on Tumblr"/><img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/31ee513c-ab04-4d49-aad7-3c6c0c1c32c7" />
+
 
 ![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
 
