@@ -33,7 +33,8 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 
  
                   
-![1000008111](https://github.com/user-attachments/assets/a71c2b02-5dd8-4d43-be5f-983c97ce5975)
+<img src="https://i.redd.it/9vure18e36af1.gif" alt="I love these shitty kirs vs soul images/gifs give me more : r/Deltarune"/>
+
 
                    
 
