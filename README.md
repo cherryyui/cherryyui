@@ -1,8 +1,8 @@
    🎉🤡Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
-[![1000008113](https://github.com/user-attachments/assets/086a94d1-f87e-47a2-8dc3-4dd0c95e7b86)](https://discord.com/channels/@me/1090050608020598856/1422057187961737358)
-
+[[![1000008113](https://github.com/user-attachments/assets/086a94d1-f87e-47a2-8dc3-4dd0c95e7b86)](https://discord.com/channels/@me/1090050608020598856/1422057187961737358)
+](https://64.media.tumblr.com/71f77be407f333d9c0e85c6cfed49d30/c52e3c015dee2370-8d/s640x960/8c7e50e312dae9fdf2bc15740766f8a6e652ecc9.gif)
 ![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
 
 ↑↑↑↑↑  Want your own? Visit the last link in my links :D
