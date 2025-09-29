@@ -13,7 +13,8 @@
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
 
-![1000008112](https://github.com/user-attachments/assets/55843a3f-9a78-4384-a87f-fb4fd6b8d9a9)
+<img src="https://media.tenor.com/3dTj9cRPU50AAAAj/ralsei-kris.gif" alt="Ralsei Kris Sticker - Ralsei Kris Deltarune - Discover &amp; Share GIFs"/><img width="200" height="159" alt="image" src="https://github.com/user-attachments/assets/44f3d63e-e226-4bdd-b2fa-bbbbc4382598" />
+
 
 
  ♡⁔⁔ Always the #1 Kirby fan ⁔⁔♡
