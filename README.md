@@ -13,6 +13,7 @@
 ↑↑↑↑↑  Want your own? Visit the last link in my links :D
 
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
+
 (I dont shame people for their ships usually so I expect the same.. please be kind!) 
 
 
