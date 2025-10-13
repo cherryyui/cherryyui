@@ -1,4 +1,4 @@
-   🎉🤡Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
+   🎉👽Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
