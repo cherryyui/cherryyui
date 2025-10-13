@@ -2,7 +2,8 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-<img src="https://64.media.tumblr.com/71f77be407f333d9c0e85c6cfed49d30/c52e3c015dee2370-8d/s640x960/8c7e50e312dae9fdf2bc15740766f8a6e652ecc9.gif" alt="Image tagged with deltarune, kris deltarune, susie deltarune – @smaland47  on Tumblr"/>
+<img src="https://media.tenor.com/I8h-fBuoC04AAAAM/amazed-elio-sol%C3%ADs.gif" alt="elio&#39;s GIFs on Tenor"/>
+
 
 
 
@@ -13,7 +14,8 @@
 I am very open about ships, if im sitting in a fandom area and you want to know.. just ask!
 
 
-<img src="https://media.tenor.com/3dTj9cRPU50AAAAj/ralsei-kris.gif" alt="Ralsei Kris Sticker - Ralsei Kris Deltarune - Discover &amp; Share GIFs"/>
+<img src="https://media.tenor.com/I8h-fBuoC04AAAAM/amazed-elio-sol%C3%ADs.gif" alt="elio&#39;s GIFs on Tenor"/>
+
 
 
 
@@ -32,8 +34,8 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
    Read DNI below! 
 
  
-                  
-<img src="https://i.redd.it/9vure18e36af1.gif" alt="I love these shitty kirs vs soul images/gifs give me more : r/Deltarune"/>
+  <img src="https://media.tenor.com/K8Hh1wD0IOwAAAAM/elio-pixar.gif" alt="Elio GIF - Elio - Discover &amp; Share GIFs"/>
+
 
 
                    
