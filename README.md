@@ -2,7 +2,8 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-<img src="https://media.tenor.com/K8Hh1wD0IOwAAAAM/elio-pixar.gif" alt="Elio GIF - Elio - Discover &amp; Share GIFs"/>
+<img src="https://preview.redd.it/new-elio-artwork-elio-glordon-by-domee-shi-v0-kva4jkqs0sme1.jpeg?auto=webp&amp;s=bba55c968685a8017930a08df385cd24bddb9b06" alt="New Elio artwork &quot;Elio &amp; Glordon&quot; by Domee Shi : r/Pixar"/>
+
 
 
 
