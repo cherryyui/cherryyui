@@ -2,7 +2,7 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-<img src="https://media.tenor.com/I8h-fBuoC04AAAAM/amazed-elio-sol%C3%ADs.gif" alt="elio&#39;s GIFs on Tenor"/>
+<img src="https://media.tenor.com/K8Hh1wD0IOwAAAAM/elio-pixar.gif" alt="Elio GIF - Elio - Discover &amp; Share GIFs"/>
 
 
 
