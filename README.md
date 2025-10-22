@@ -50,7 +50,7 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 
 ˏˋ°•* comshippers/darkshippers
 
-ˏˋ°•* -14 and 18+ 
+ˏˋ°•* -14 and 22+ 
 
 ˏˋ°•* Hazbin Hotel + Helluva boss fans + THOSE Dandys world fans (not all dandys world fans, just yk.. those ones.)
 
