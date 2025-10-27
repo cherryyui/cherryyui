@@ -24,6 +24,8 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 
  ♡⁔⁔ Always the #1 Kirby fan ⁔⁔♡
 
+  ︶ mbti ISFP-T
+ 
  Strawpage was lowkey rushed.. but I kept procrastinating about it so i threw stuff together sorry ^^!
                                                                                  
    ★  I usually dont always accept friend requests - Please dont take it personal if I dont friend you back! 
