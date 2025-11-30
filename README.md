@@ -1,6 +1,8 @@
    🎉👽Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
 
-   - ★-  (This account is for Ponytown only!))  usually im with friends other than that I'm afk! (mostly) 
+   - ★-  (This account is for Ponytown only!))  usually im with friends other than that I'm afk! (mostly)
+
+   -  Please Please whisper me to int!!! I never check chat unless youre a friend (because I check personal chat) or if youre right infront of me (which usually i wont see since im afk mostly) 
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
