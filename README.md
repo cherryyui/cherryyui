@@ -8,7 +8,7 @@
 
 <img src="https://preview.redd.it/new-elio-artwork-elio-glordon-by-domee-shi-v0-kva4jkqs0sme1.jpeg?auto=webp&amp;s=bba55c968685a8017930a08df385cd24bddb9b06" alt="New Elio artwork &quot;Elio &amp; Glordon&quot; by Domee Shi : r/Pixar"/>
 
-Click me! ↓↓↓
+Feed me :D (Click)! ↓↓↓
 
 <a href="https://tamanotchi.world/28052c"><img src="https://tamanotchi.world/i2/28052" alt="It's tamaNOTchi! Click to feed!"></a> 
 
