@@ -6,7 +6,8 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-![pomni-appreciation-posts-xmas-edition-v0-7ixzlpj5jg8c1](https://github.com/user-attachments/assets/c0f82b69-9b6d-41c0-adfc-1de3db1fc4eb)
+![1a7947a0beb1662193254486a32ff983](https://github.com/user-attachments/assets/ec11b01c-4ac8-4525-ba0e-afb6957766ea)
+
 
 
 Feed me :D (Click)! ↓↓↓
@@ -23,7 +24,8 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 (I dont shame people for their ships usually so I expect the same.. please be kind!) 
 
 
-<img src="https://media.tenor.com/I8h-fBuoC04AAAAM/amazed-elio-sol%C3%ADs.gif" alt="elio&#39;s GIFs on Tenor"/>
+![jax-annoys-ragatha-even-in-her-bedroom-bonus-jax-christmas-v0-9dh9zxoijqac1](https://github.com/user-attachments/assets/6bac2cf6-1eb6-44f3-847f-4620d2952910)
+
 
 
 
@@ -45,7 +47,8 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
    Read DNI below! 
 
  
-  <img src="https://media.tenor.com/K8Hh1wD0IOwAAAAM/elio-pixar.gif" alt="Elio GIF - Elio - Discover &amp; Share GIFs"/>
+  ![pomni-appreciation-posts-xmas-edition-v0-7ixzlpj5jg8c1](https://github.com/user-attachments/assets/9178e65d-50bc-4298-a55e-f9d9ac95f332)
+
 
 
 
