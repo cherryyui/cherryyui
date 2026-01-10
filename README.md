@@ -7,7 +7,7 @@
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
 
-https://static.wikia.nocookie.net/sk8theinfinity/images/4/40/Episode_10.png/revision/latest?cb=20210320230006
+<img>https://sk8theinfinity.fandom.com/wiki/Reki_Kyan/Relationships 
 
 
 Feed me :D (Click)! ↓↓↓
