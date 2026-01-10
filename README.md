@@ -1,4 +1,7 @@
-   🎉🤡Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
+
+   Whos the langa to my reki ❤️ (🛹)
+   
+   🎉Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
 
    - ★-  (This account is for Ponytown only!))  usually im with friends other than that I'm afk! (mostly)
 
