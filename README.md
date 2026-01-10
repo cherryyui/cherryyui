@@ -3,12 +3,13 @@
    - ★-  (This account is for Ponytown only!))  usually im with friends other than that I'm afk! (mostly)
 
    -  Please Please whisper me to int!!! I never check chat unless youre a friend (because I check personal chat) or if youre right infront of me (which usually i wont see since im afk mostly) 
+
+   ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
    
-⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
+   
+   ![_ (1)](https://github.com/user-attachments/assets/515f33d9-1f48-4fdc-b667-1fb2d21f0107)
 
-
-[[<img>(https://i.pinimg.com/736x/33/f0/0d/33f00da80370b20bf4b9526eba78b893.jpg)](https://pin.it/3kwun2pUF)
-
+ 
 
 Feed me :D (Click)! ↓↓↓
 
