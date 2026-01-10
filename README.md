@@ -25,8 +25,9 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
 (I dont shame people for their ships usually so I expect the same.. please be kind!) 
 
 
-![jax-annoys-ragatha-even-in-her-bedroom-bonus-jax-christmas-v0-9dh9zxoijqac1](https://github.com/user-attachments/assets/6bac2cf6-1eb6-44f3-847f-4620d2952910)
 
+
+![_](https://github.com/user-attachments/assets/f124b8cb-9d06-447d-9e03-1d4ebfb8f3bd)
 
 
 
