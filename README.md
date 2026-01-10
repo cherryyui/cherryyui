@@ -6,9 +6,6 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-[<img src="[[https://wallpapers.com/images/hd/sk8-the-infinity-reki-langa-and-cats-422vd33jrp5ggy2g.jpg](https://wallpapers.com/images/hd/sk8-the-infinity-reki-langa-and-cats-422vd33jrp5ggy2g.jpg]">
-](https://sk8theinfinity.fandom.com/wiki/Reki_Kyan/Relationships)
-
 
 
 
