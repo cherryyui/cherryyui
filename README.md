@@ -49,9 +49,8 @@ I am very open about ships, if im sitting in a fandom area and you want to know.
    Read DNI below! 
 
  
-  ![pomni-appreciation-posts-xmas-edition-v0-7ixzlpj5jg8c1](https://github.com/user-attachments/assets/9178e65d-50bc-4298-a55e-f9d9ac95f332)
-
-
+ 
+ ![sk8 the infinity](https://github.com/user-attachments/assets/0b48694c-9ffb-4be7-a2c5-1b2741a510ef)
 
 
                    
