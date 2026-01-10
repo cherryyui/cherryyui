@@ -6,7 +6,7 @@
    
 ⚠ None of any art that I use is mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-<img src="[[image_url](https://wallpapers.com/images/hd/sk8-the-infinity-reki-langa-and-cats-422vd33jrp5ggy2g.jpg](https://wallpapers.com/images/hd/sk8-the-infinity-reki-langa-and-cats-422vd33jrp5ggy2g.jpg))">
+<img src="[[https://wallpapers.com/images/hd/sk8-the-infinity-reki-langa-and-cats-422vd33jrp5ggy2g.jpg](https://wallpapers.com/images/hd/sk8-the-infinity-reki-langa-and-cats-422vd33jrp5ggy2g.jpg]">
 
 
 
