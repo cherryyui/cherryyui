@@ -1,5 +1,4 @@
 
-   Whos the langa to my reki ❤️ 🛹
    
    🎉Hey! Sign my ata! Im pretty friendly, dont be scared to approach!! (I do not roleplay!!)
 
