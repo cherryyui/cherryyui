@@ -1,4 +1,5 @@
 
+
   - ★-  (This account is for Ponytown only!) I am typically offtab or afk most of the time. W2I!
  
   ︶ mbti ISFP-T
@@ -10,9 +11,7 @@
    ⚠ None of any art that I use for pfps or anywhere in these links are mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
 
-![6824112f3b402-large](https://github.com/user-attachments/assets/a06db628-d81c-48ae-8951-435d4735397f)
-
-   
+![1000010547](https://github.com/user-attachments/assets/df7c980a-ea5b-4721-b839-65210c54ee2b)![1000010549]
 
 <a href="https://tamanotchi.world/28052c"><img src="https://tamanotchi.world/i2/28052" alt="It's tamaNOTchi! Click to feed!"></a> 
 
@@ -22,7 +21,9 @@
 ↑↑↑↑↑  Want your own? Visit the last link in my links :D
 
 
-  ![images (12)](https://github.com/user-attachments/assets/ccbb24c1-54d0-44f7-821f-ac878f4559bf)
+(https://github.com/user-attachments/assets/a6f33399-83f5-4a0c-9bb1-cd7b70613873)
+
+   
 
 
 
