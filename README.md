@@ -18,12 +18,11 @@
 
 ![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
 
-↑↑↑↑↑  Want your own? Visit the last link in my links :D
+↑↑↑↑↑  Want your own? Visit the last link in my last links!
 
-
-(https://github.com/user-attachments/assets/a6f33399-83f5-4a0c-9bb1-cd7b70613873)
 
    
+![1000010549](https://github.com/user-attachments/assets/95d3e0ce-8cb9-4e9c-a9b7-eb6135f82586)
 
 
 
