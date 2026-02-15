@@ -11,7 +11,7 @@
    ⚠ None of any art that I use for pfps or anywhere in these links are mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
 
-![1000010547](https://github.com/user-attachments/assets/df7c980a-ea5b-4721-b839-65210c54ee2b)![1000010549]
+![1000010547](https://github.com/user-attachments/assets/df7c980a-ea5b-4721-b839-65210c54ee2b)
 
 <a href="https://tamanotchi.world/28052c"><img src="https://tamanotchi.world/i2/28052" alt="It's tamaNOTchi! Click to feed!"></a> 
 
