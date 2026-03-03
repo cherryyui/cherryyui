@@ -11,7 +11,7 @@
    ⚠ None of any art that I use for pfps or anywhere in these links are mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
 
-![1000011493](https://github.com/user-attachments/assets/362a6393-8e5a-415c-827f-7ee856ed3db9)
+![1000011790](https://github.com/user-attachments/assets/e50ea717-c3be-4431-bcc3-eeda5c3f5028)
 
 
 
@@ -23,22 +23,11 @@
 ↑↑↑↑↑  Want your own? Visit the last link in my last links!
 
 
-   
-![1000011496](https://github.com/user-attachments/assets/3e551eca-6ce7-4876-a6a0-4ef39bde207d)
-
-
-
-
-
 -  Read my strawpage for information about me if youre nosy or wanting to be my friend!
--  Yes, i am very awkward at first . dont take it as if I dont want to talk to you!
+-  Yes, i am very awkward at first . dont take it as if I dont want to talk !
 
 
-
-
-
-
-![1000011494](https://github.com/user-attachments/assets/4cd526d8-0228-4bc5-9f40-43559e623025)
+![1000011792](https://github.com/user-attachments/assets/16b2ca8e-1cb0-4c60-8bb0-121e50af4c93)
 
 
  
