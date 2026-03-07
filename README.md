@@ -10,8 +10,8 @@
 
    ⚠ None of any art that I use for pfps or anywhere in these links are mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-
-![1000011790](https://github.com/user-attachments/assets/e50ea717-c3be-4431-bcc3-eeda5c3f5028)
+![1000012039](https://github.com/user-attachments/assets/7cef093e-d830-4ea0-80d7-cb464fe82dc6)
+(NOT a ship, i see them as sibling like-ISH)
 
 
 
@@ -27,10 +27,10 @@
 -  Yes, i am very awkward at first . dont take it as if I dont want to talk !
 
 
-![1000011792](https://github.com/user-attachments/assets/16b2ca8e-1cb0-4c60-8bb0-121e50af4c93)
 
 
- 
+ ![1000012038](https://github.com/user-attachments/assets/8ed7bf16-7809-4323-b4a5-02a28b2f88f7)
+
 
   
 
