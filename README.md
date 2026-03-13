@@ -19,7 +19,7 @@
 <a href="https://tamanotchi.world/28052c"><img src="https://tamanotchi.world/i2/28052" alt="It's tamaNOTchi! Click to feed!"></a> 
 
 
-![](https://komarev.com/ghpvc/?username=killuagonlover&color=blueviolet&label=fans:)    
+![](https://komarev.com/ghpvc/?username=cherryyui&color=blueviolet&label=fans:)    
 
 ↑↑↑↑↑  Want your own? Visit the last link in my last links!
 
