@@ -16,7 +16,7 @@
 
 
 
-<a href="https://tamanotchi.world/28052c"><img src="https://tamanotchi.world/i2/28052" alt="It's tamaNOTchi! Click to feed!"></a> 
+<a href="https://tamanotchi.world/28052c"><img src="https://tamanotchi.world/i/28052" alt="It's tamaNOTchi! Click to feed!"></a>
 
 
 ![](https://komarev.com/ghpvc/?username=cherryyui&color=blueviolet&label=fans:)    
