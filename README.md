@@ -22,7 +22,7 @@
 ↑↑↑↑↑  Want your own? Visit the last link in my last links!
 
 
--  Read my strawpage for information about me if youre nosy or wanting to be my friend!
+-  having some technical difficulties, might not have a straw for awhile. Whisper me if you ever want to int<3
 -  Yes, i am very awkward at first . dont take it as if I dont want to talk !
 
 
