@@ -10,7 +10,8 @@
 
    ⚠ None of any art that I use for pfps or anywhere in these links are mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
-![1000012039](https://github.com/user-attachments/assets/7cef093e-d830-4ea0-80d7-cb464fe82dc6)
+![1000013148](https://github.com/user-attachments/assets/c445d07c-0d56-4a33-beb9-f63bb01375f6)
+
 
 
 
@@ -28,7 +29,8 @@
 
 
 
- ![1000012038](https://github.com/user-attachments/assets/8ed7bf16-7809-4323-b4a5-02a28b2f88f7)
+ 
+![1000013149](https://github.com/user-attachments/assets/e04e7b3c-8366-4158-9bd4-0108441106af)
 
 
   
