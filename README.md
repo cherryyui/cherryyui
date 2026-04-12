@@ -24,6 +24,13 @@
 ↑↑↑↑↑  Want your own? Visit the last link in my last links!
 
 
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xb6rdvtt2i56q74pjqfwfdwxni&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8e3ed0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
 -  having some technical difficulties, might not have a straw for awhile. Whisper me if you ever want to int<3
 -  Yes, i am very awkward at first . dont take it as if I dont want to talk !
 
