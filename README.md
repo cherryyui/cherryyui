@@ -11,8 +11,7 @@
    ⚠ None of any art that I use for pfps or anywhere in these links are mine nor will i take credit for. ⚠  (I most likely found it on pinterest or google)
 
 
-
-<img width="311" height="287" alt="1000014631" src="https://github.com/user-attachments/assets/2ee5ee30-99c3-4f99-b947-a8d2ad7ad4c0" />
+https://www.pinterest.com/pin/19281104653376887/
 
 
 
