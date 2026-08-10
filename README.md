@@ -3,6 +3,8 @@
   - ★-  (This account is for Ponytown only!) I am typically offtab or afk most of the time. W2I!
  
   ︶ mbti ISFP-T
+
+  yui.w is my discord, dms always open.
                                                                                  
    ★  I usually dont always accept friend requests - Please dont take it personal if I dont friend you back! 
    
