@@ -2,7 +2,7 @@
 
   - ★-  (This account is for Ponytown only!) I am typically offtab or afk most of the time. W2I!
 
-<img https://ptb.discord.com/channels/@me/1476004102843531389/1538731518120304651 
+https://ptb.discord.com/channels/@me/1476004102843531389/1538731518120304651 
  
   ︶ mbti ISFP-T
 
