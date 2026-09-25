@@ -42,7 +42,7 @@
 
 
 
-<img width="736" height="414" alt="6fd14dd3e94c884a9762220c429ed0eb" src="https://github.com/user-attachments/assets/a30bb0a6-41ba-4710-a2b7-ba8f14f83445" />
+<img width="887" height="912" alt="Screenshot 2026-09-25 191204" src="https://github.com/user-attachments/assets/2598d9db-5bee-4470-b5d2-5604fb128cc8" />
 
 
  
