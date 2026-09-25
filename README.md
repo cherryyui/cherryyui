@@ -15,7 +15,7 @@
 
 
 
-<img width="887" height="912" alt="Screenshot 2026-09-25 191204" src="https://github.com/user-attachments/assets/77d533c4-843e-4fa0-95ea-83ae641ad9f4" />
+<img width="745" height="910" alt="Screenshot 2026-09-25 191149" src="https://github.com/user-attachments/assets/076190c5-b9eb-4c17-8148-c7ff9ff23300" />
 
 
 
