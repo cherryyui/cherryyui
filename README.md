@@ -20,7 +20,7 @@
 
 
 
-![Visitors](https://api.visitorbadge.io/api/visitors?/cherryyui
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fcherryyui&label=cherry%20pits&labelColor=%23f47373&countColor=%2337d67a&style=flat&labelStyle=lower)
 
 ↑↑↑↑↑  Want your own? Visit the last link in my links!
 
