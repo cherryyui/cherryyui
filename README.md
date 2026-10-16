@@ -6,7 +6,7 @@
 
   yui.w is my discord, dms always open.                                                                
 
-<img width="112" height="112" alt="IMG_2590" src="https://github.com/user-attachments/assets/2eddb1b5-9937-49b8-87ef-c5de087ae526" />
+                                                              <img width="112" height="112" alt="IMG_2590" src="https://github.com/user-attachments/assets/2eddb1b5-9937-49b8-87ef-c5de087ae526" />
 
 
                                                                                  
