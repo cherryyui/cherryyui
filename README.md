@@ -5,7 +5,8 @@
  
   ︶ mbti ISFP-T
 
-  yui.w is my discord, dms always open.
+  yui.w is my discord, dms always open.                                                                      <img width="112" height="112" alt="IMG_2590" src="https://github.com/user-attachments/assets/0d655be3-d990-4481-a303-49474bbf9065" />
+
                                                                                  
    ★  I usually dont always accept friend requests - Please dont take it personal if I dont friend you back! 
    
